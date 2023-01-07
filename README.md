@@ -1,6 +1,6 @@
 # Information
 
-## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ〈 Ссылки 〉
+## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ〈 Ссылки 〉
 ---
 
 ●｜ Youtube: https://www.youtube.com/channel/UC300TuWKwx9Ar077-9ZHVyg
