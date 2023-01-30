@@ -18,5 +18,13 @@
 ---
 
 🔎 ● Dark Deception Mobile Edition
+🔎 ● Comming Soon...
+
+---
+
+## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ Magisk модули 
+---
+
+🔎 ● Project Elexir Bootanimation
 
 ---
